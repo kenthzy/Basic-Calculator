@@ -1,4 +1,4 @@
-'BSCPE 1-C
+
 'Created with my Group members
 'Using VB.Net and Gui Features
 Public Class Form1
