@@ -9,7 +9,9 @@ main source code tapos po if need
 niyo po ng code lang dl niyo po
 ung backend na file
 
-if may github kau sir follow and 
-niyo po ako followback ko din po kayo 
-hahaha salamat po😅
+if may github kau sir follow
+https://github.com/kenthzy
+& followback
+din kita po agad salamat po 
+😅
 
